@@ -3,7 +3,7 @@
 
 Hello world!
 
-My name is Marta and I'm Jr Talent Engagement at Spark Networks.
+My name is Marta and I'm Jr Talent Engagement Manager at Spark Networks.
 
 I'm here to find my future colleagues that will work at one of the coolest offices in Berlin :) 
 
